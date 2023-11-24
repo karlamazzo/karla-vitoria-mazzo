@@ -1,1 +1,2 @@
 # karla-vitoria-mazzo
+eu me chamo karla vitoria mazzo, nasci dia 31 de agosto de 2007 meu pai se chama luiz aparecido mazzo e minha mae lucineia maranho mazzo, tenho duas irmas mais velhas,a primeira tem 29 anos e se chama jessica mazzo alves ela ja é casada e tem um filho que consequentemente é meu sobrinho né,minha outra irma se chama loraine karolaine mazzo e tem 18 anos. moro com meus pais e minha irma lorraine e com meu vo. 
